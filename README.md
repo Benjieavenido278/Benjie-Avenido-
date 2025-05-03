@@ -1,2 +1,3 @@
-# Benjie-Avenido-
-Yes first time baka pwede Dito gamit Gcash ko account 
+Gcash account.
+name.Benjie Avenido 
+number. +63 9946533529
